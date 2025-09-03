@@ -5,6 +5,8 @@ enjoy this bland repo bruh, tis all for fun and apart of testing purposes
 **uhm,, just read the rentry(s)/carrd and check out my stupid lookin' strawpage!!**
 _(please gimme time to redo my rentry/carrd AGAIN, I keep thinking abt how awful they are. 💔)_
 
+3/09/2025 note: i 'remade' my rentry again lol 🗿
+
 <p align="center">
   <img width="400" height="350" src="https://github.com/user-attachments/assets/ff53db67-ee99-492c-be44-e450036a3781">
 </p>
