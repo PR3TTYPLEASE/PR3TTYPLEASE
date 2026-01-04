@@ -2,7 +2,7 @@
 <body>
   
 <p align="center">
-<img src="https://64.media.tumblr.com/0fa303a4add29eab0fab066dda88b422/bc307bdfdf5017fe-b0/s2048x3072/37c271463c6357fe15fdb68f81b25374f91c4302.pnj" width="1000px" height="auto">
+<img src="https://64.media.tumblr.com/0e0c6542a5220fd9e0c8b07e222743b3/2e8f6b64d9a2d3e9-2c/s2048x3072/03cc6dc5a1c471133ec49d664388bfd3dd5df547.pnj" width="1000px" height="auto">
 </p>
 
 <h2 style="text-align: center;">
@@ -17,6 +17,14 @@
 
 Enjoy this bland repo. This is all for fun and apart of testing purposes.
 
+<br>
+
+<p align="center">
+  <img src="https://64.media.tumblr.com/29127466792463fc9330e986855ef9c9/218df9079897465a-d5/s1280x1920/1b071be3f4f1dd021fcff61ef40127e937fa8df6.pnj" width="500px" height="auto">
+</p>
+
+<br> 
+
 **uhm,, just read the rentry(s)/carrd and check out my stupid lookin' strawpage!!**
 _(please gimme time to redo my rentry/carrd AGAIN, I keep thinking abt how awful they are. 💔)_
 
@@ -27,7 +35,7 @@ _(please gimme time to redo my rentry/carrd AGAIN, I keep thinking abt how awful
 </p>
 
 <p align="center">
-  <img src="https://64.media.tumblr.com/1f91cc3fd5d71c32a0fe2ea099901bdf/bc307bdfdf5017fe-15/s2048x3072/118ddc9d586e87601404b9a6a3eee64f1cfd7e52.pnj" width="1000px" height="auto">
+  <img src="https://64.media.tumblr.com/0e0c6542a5220fd9e0c8b07e222743b3/2e8f6b64d9a2d3e9-2c/s2048x3072/03cc6dc5a1c471133ec49d664388bfd3dd5df547.pnj" width="1000px" height="auto">
 </p>
 
 </body>
