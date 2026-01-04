@@ -35,7 +35,7 @@ _(please gimme time to redo my rentry/carrd AGAIN, I keep thinking abt how awful
 </p>
 
 <p align="center">
-  <img src="https://64.media.tumblr.com/0e0c6542a5220fd9e0c8b07e222743b3/2e8f6b64d9a2d3e9-2c/s2048x3072/03cc6dc5a1c471133ec49d664388bfd3dd5df547.pnj" width="1000px" height="auto">
+  <img src="https://64.media.tumblr.com/0e0c6542a5220fd9e0c8b07e222743b3/2e8f6b64d9a2d3e9-2c/s2048x3072/03cc6dc5a1c471133ec49d664388bfd3dd5df547.pnj" width="800px" height="auto">
 </p>
 
 </body>
