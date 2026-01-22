@@ -26,10 +26,9 @@ Enjoy this bland repo. This is all for fun and apart of testing purposes.
 <br> 
 
 **uhm,, just read the rentry(s)/carrd and check out my stupid lookin' strawpage!!**
-_(please gimme time to redo my rentry/carrd AGAIN, I keep thinking abt how awful they are. 💔)_
+_(I will keep editing my shi until I am satisfied. gr.)_
 
-3/09/2025 note: i 'remade' my rentry again lol. 🗿
-
+Send me random questions or fact.. whatever ya want in either my strawpage or ata! (as long it's not something offensive.)
 <p align="center">
   <img width="500" height="500" alt="soaprentry" src="https://github.com/user-attachments/assets/aa140145-6a3b-4a2e-b0d3-bbbe4834ee67" />
 </p>
