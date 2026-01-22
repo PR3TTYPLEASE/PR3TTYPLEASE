@@ -21,7 +21,13 @@
   <img src="https://i.ibb.co/9RfBvDF/20250325-124933.jpg" alt="waves!!" width="300" height="300"/>
 </p>
 
-Enjoy this bland repo. This is all for fun and apart of testing purposes.
+<br>
+
+Hey, to you reading this, you must've found me in safe server because that's where I mostly reside. I barely stay in 18+ cuz I feel like a skittish animal in there, unless I'm with a friend (or maybe I get bored). So, **ADULTS** , do IWC. I DON'T want any nasty or uncomfortable conversation unless I know or I'm close with you. Shanks ^^.
+
+<br>
+
+Enjoy this bland repo btw. This is all for fun and apart of testing purposes.
 
 <br> 
 
