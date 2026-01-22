@@ -24,6 +24,7 @@
 <br>
 
 Hey, to you reading this, you must've found me in safe server because that's where I mostly reside. I barely stay in 18+ cuz I feel like a skittish animal in there, unless I'm with a friend (or maybe I get bored). So, **ADULTS** , do IWC. I DON'T want any nasty or uncomfortable conversation unless I know or I'm close with you. Friendly conversation is definately fine ! Shanks ^^.
+Oh and I don't bite, feel free to cuddle with me. Also, do **whisper** when it looks like I'm not doing anything. :]
 
 <br>
 
