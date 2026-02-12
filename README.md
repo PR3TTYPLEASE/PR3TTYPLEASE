@@ -21,6 +21,12 @@
   <img src="https://i.ibb.co/9RfBvDF/20250325-124933.jpg" alt="waves!!" width="300" height="300"/>
 </p>
 
+<p align="center">
+  <a href="https://github.com/kittinan/spotify-github-profile">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=1uuz81ys5eomswefdxwyzxjnp&cover_image=true&theme=spotify-embed&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=53b14f&bar_color_cover=false&mode=dark">
+  </a>
+</p>
+
 <br>
 
 Hey, to you reading this, you must've found me in safe server because that's where I mostly reside. I barely stay in 18+ cuz I feel like a skittish animal in there, unless I'm with a friend (or whenever I feel like coming there). So, **ADULTS** , do IWC. I DON'T want any nasty or uncomfortable conversation unless I know or I'm close with you. Friendly conversation is definately fine ! Shanks ^^.
