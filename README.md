@@ -1,56 +1,46 @@
 <!DOCTYPE html>
 <body>
-  
-<p align="center">
-<img src="https://64.media.tumblr.com/0e0c6542a5220fd9e0c8b07e222743b3/2e8f6b64d9a2d3e9-2c/s2048x3072/03cc6dc5a1c471133ec49d664388bfd3dd5df547.pnj" width="1000px" height="auto">
-</p>
-
-<p align="center">
-  <img src="https://64.media.tumblr.com/29127466792463fc9330e986855ef9c9/218df9079897465a-d5/s1280x1920/1b071be3f4f1dd021fcff61ef40127e937fa8df6.pnj" width="500px" height="auto">
-</p>
-
-<br>
 
 <h2 style="text-align: center;">
   Stalking I see? How professional.. smh..  <img src="https://64.media.tumblr.com/2615e7c01d603ad5706c9c1193ac07be/82f062ad64b65975-f4/s100x200/2a9e83313910367d6875fd6fa4694b56e5853dad.pnj" width="50" height="auto">
 </h2>
 
-<br> ![Sup](https://komarev.com/ghpvc/?username=PR3TTYPLEASE&color=lightgrey&style=plastic&label=stalkers.)
+<br>
 
 <p align="center">
-  <img src="https://i.ibb.co/9RfBvDF/20250325-124933.jpg" alt="waves!!" width="300" height="300"/>
+  <img src="https://i.ibb.co/cScGT7Yw/image-2026-03-09-211055024.png" width="500" height="500"/>
+</p>
+
+<br>
+
+## ⚠️ IMPORTANT INFO. PLEASE CHECK @BungaK 's GITHUB (IN MY BIO). THANK YOU.
+<br> ![Sup](https://komarev.com/ghpvc/?username=PR3TTYPLEASE&color=lightgrey&style=plastic&label=stalkers.)
+
+If you're reading this, you probably found me in the safe server—that's where I usually hang out. I rarely stay in 18+ areas unless I'm with friends.
+
+**TO ADULTS** : please interact with caution (IWC). No uncomfortable or inappropriate conversations unless we're close. Friendly chats are totally fine!
+<br>
+*I don't bite, feel free to cuddle! If I look idle, you can whisper me.* :)
+
+<br>
+
+Enjoy this bland repo btw. It's mostly just for fun and testing !!
+
+<br> 
+
+Uhm… just read the rentry(s)/carrd and check out my stupid-looking strawpage !
+I'll keep editing/remaking my stuff until I'm **satisfied**. gr.
+
+Send me random questions or facts.. whatever ya want in either my strawpage or ata! (as long it's not something offensive.)
+
+<p align="center">
+  <img width="400" height="400" alt="soaprentry" src="https://github.com/user-attachments/assets/aa140145-6a3b-4a2e-b0d3-bbbe4834ee67" />
 </p>
 
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=1uuz81ys5eomswefdxwyzxjnp&cover_image=true&theme=spotify-embed&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=53b14f&bar_color_cover=false&mode=dark">
   </a>
-</p>
-
-<br>
-
-## ⚠️ IMPORTANT INFO. PLEASE CHECK @BungaK 's GITHUB (IN MY BIO). THANK YOU.
-<br>
-Hey, to you reading this, you must've found me in safe server because that's where I mostly reside. I barely stay in 18+ cuz I feel like a skittish animal in there, unless I'm with a friend (or whenever I feel like coming there). So, **ADULTS** , do IWC. I DON'T want any nasty or uncomfortable conversation unless I know or I'm close with you. Friendly conversation is definately fine ! Shanks ^^.
-<br>
-*Oh and I don't bite, feel free to cuddle with me. Also, do **whisper** when it looks like I'm not doing anything.* :]
-
-<br>
-
-Enjoy this bland repo btw. This is all for fun and apart of testing purposes.
-
-<br> 
-
-**uhm,, just read the rentry(s)/carrd and check out my stupid lookin' strawpage!!**
-_(I will keep editing my shi until I am satisfied. gr.)_
-
-Send me random questions or fact.. whatever ya want in either my strawpage or ata! (as long it's not something offensive.)
-<p align="center">
-  <img width="500" height="500" alt="soaprentry" src="https://github.com/user-attachments/assets/aa140145-6a3b-4a2e-b0d3-bbbe4834ee67" />
-</p>
-
-<p align="center">
-  <img src="https://64.media.tumblr.com/0e0c6542a5220fd9e0c8b07e222743b3/2e8f6b64d9a2d3e9-2c/s2048x3072/03cc6dc5a1c471133ec49d664388bfd3dd5df547.pnj" width="800px" height="auto">
 </p>
 
 </body>
