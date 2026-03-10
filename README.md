@@ -16,7 +16,7 @@
 ## ⚠️ IMPORTANT INFO. PLEASE CHECK @BungaK 's GITHUB (IN MY BIO). THANK YOU.
 <br> ![Sup](https://komarev.com/ghpvc/?username=PR3TTYPLEASE&color=lightgrey&style=plastic&label=stalkers.)
 
-If you're reading this, you probably found me in the safe server—that's where I usually hang out. I rarely stay in 18+ areas unless I'm with friends.
+If you're reading this, you probably found me in the safe server, that's where I usually hang out. I rarely stay in 18+ server unless I'm with friends.
 
 **TO ADULTS** : please interact with caution (IWC). No uncomfortable or inappropriate conversations unless we're close. Friendly chats are totally fine!
 <br>
