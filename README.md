@@ -8,7 +8,7 @@
 <br>
 
 <p align="center">
-  <img src="https://i.ibb.co/cScGT7Yw/image-2026-03-09-211055024.png" width="500" height="500"/>
+  <img src="https://i.ibb.co/cScGT7Yw/image-2026-03-09-211055024.png" width="400" height="400"/>
 </p>
 
 <br>
@@ -16,25 +16,24 @@
 ## ‼️Go support my pookie @BungaK !! He's opening comms :D 🩷
 <br> ![Sup](https://komarev.com/ghpvc/?username=PR3TTYPLEASE&color=lightgrey&style=plastic&label=stalkers.)
 
-If you're reading this, you probably found me in the safe server, that's where I usually hang out. I rarely stay in 18+ server unless I'm with friends.
-
-**TO ADULTS** : please interact with caution (IWC). No uncomfortable or inappropriate conversations unless we're close. Friendly chats are totally fine!
-<br>
-*I don't bite, feel free to cuddle! If I look idle, you can whisper me.* :)
+Hiya! You probably found me hanging around PT with my friends (or if I'm alone). But whenever my gng is online, that's usually where I'm at.
 
 <br>
 
-Enjoy this bland repo btw. It's mostly just for fun and testing !!
+**Note for.. adults:** PLEASE keep things friendly and appropriate. I'm happy to chat, but I don't do anything beyond that.
 
-<br> 
+<br>
 
-Uhm… just read the rentry(s)/carrd and check out my stupid-looking strawpage !
-I'll keep editing/remaking my stuff until I'm **satisfied**. gr.
+This repo's just for fun / testing, nothing serious!
 
-Send me random questions or facts.. whatever ya want in either my strawpage or ata! (as long it's not something offensive.)
+<br>
+
+Check out my strawpage if you want. I'll keep tweaking this stuff whenever I feel like it, lol </3
+
+Feel free to send me random questions or fun facts on my strawpage or ata. Just keep it appropriate.
 
 <p align="center">
-  <img width="400" height="400" alt="soaprentry" src="https://github.com/user-attachments/assets/aa140145-6a3b-4a2e-b0d3-bbbe4834ee67" />
+  <img width="300" height="300" alt="soaprentry" src="https://github.com/user-attachments/assets/aa140145-6a3b-4a2e-b0d3-bbbe4834ee67" />
 </p>
 
 <p align="center">
