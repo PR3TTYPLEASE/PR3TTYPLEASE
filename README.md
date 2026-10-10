@@ -15,7 +15,7 @@
 
 <br> ![Sup](https://komarev.com/ghpvc/?username=PR3TTYPLEASE&color=lightgrey&style=plastic&label=stalkers.)
 
-Hiya! You probably found me hanging around PT with my friends (or if I'm alone). But whenever my gng is online, that's usually where I'm at.
+Hiya! You probably found me hanging around PT (of course.)
 
 <br>
 
