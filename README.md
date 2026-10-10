@@ -8,7 +8,7 @@
 <br>
 
 <p align="center">
-  <img src="https://i.ibb.co/cScGT7Yw/image-2026-03-09-211055024.png" width="400" height="400"/>
+  <img src="https://github.com/user-attachments/assets/aa140145-6a3b-4a2e-b0d3-bbbe4834ee67" width="360" height="360"/>
 </p>
 
 <br>
@@ -30,10 +30,6 @@ This repo's just for fun / testing, nothing serious!
 Check out my strawpage if you want. I'll keep tweaking this stuff whenever I feel like it, lol </3
 
 Feel free to send me random questions or fun facts on my strawpage or ata. Just keep it appropriate.
-
-<p align="center">
-  <img width="300" height="300" alt="soaprentry" src="https://github.com/user-attachments/assets/aa140145-6a3b-4a2e-b0d3-bbbe4834ee67" />
-</p>
 
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
